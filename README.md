@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @imaklex5
-- 👀 I’m interested in coding
-- 🌱 I’m currently learning computer and science
+- 👀 I’m interested in sleeping
+- 🌱 Majored in computer and science
 - 📫 reach me at eliot1238@outlook.com
 
 <!---
